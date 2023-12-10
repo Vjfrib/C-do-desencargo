@@ -1,0 +1,10 @@
+_VAMOS DE README COM GRAFOS. BREVE EXPLICAÇÃO:_
+**IA do Replit...**
+
+_GRAFOS. BREVE EXPLICAÇÃO:_
+
+
+é isso
+
+---
+GRAFOS. BREVE EXPLICAÇÃO: OUT!!!
